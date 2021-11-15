@@ -23,6 +23,8 @@
 
 5. 
 ![T9](https://user-images.githubusercontent.com/91968610/141811293-2aa12811-6cea-4265-82ed-7ce860ba1db4.png)
+![akhir](https://user-images.githubusercontent.com/91968610/141814040-c2f8d316-73aa-4522-885f-c70c03eb3f17.png)
+
    
 
 7. 
