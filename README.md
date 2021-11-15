@@ -25,7 +25,10 @@
 ![T9](https://user-images.githubusercontent.com/91968610/141811293-2aa12811-6cea-4265-82ed-7ce860ba1db4.png)
 ![akhir](https://user-images.githubusercontent.com/91968610/141814040-c2f8d316-73aa-4522-885f-c70c03eb3f17.png)
 
-   
+6.
+![A1](https://user-images.githubusercontent.com/91968610/141816171-ac00e28f-93e5-42d2-a143-fa424bd4468b.png)
+![A2](https://user-images.githubusercontent.com/91968610/141816208-a8aa0e2c-3877-4aab-ba22-a4a40efc2536.png)
+
 
 7. 
 
